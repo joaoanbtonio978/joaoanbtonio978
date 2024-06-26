@@ -2,7 +2,7 @@
 - 👀 I’m interested in god
 - 🌱 I’m currently learning ingles
 - 💞️ I’m looking to collaborate in school
-- 📫 How to reach me with my telephone number
+- 📫 How to reach me: with my telephone number
 - 😄 Pronouns: macho alfa
 - ⚡ Fun fact: im a good student
 
