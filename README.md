@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @joaoanbtonio978
+- 👋 Hi, I’m @joaoantonio978
 - 👀 I’m interested in god
 - 🌱 I’m currently learning ingles
 - 💞️ I’m looking to collaborate in school
